@@ -1,1 +1,1 @@
-# CampThailand
+# CampThailand.github.io
